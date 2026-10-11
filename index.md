@@ -57,4 +57,4 @@ If this policy changes, the updated version will be posted at this same URL with
 
 ## Contact
 
-For any questions about this policy, contact: **YOUR-EMAIL@example.com**
+For any questions about this policy, contact: **smartrashid101@gmail.com**
